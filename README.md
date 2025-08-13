@@ -2,7 +2,7 @@
 
 Are you a Free Fire player looking to boost your gaming experience without spending real money? Imagine unlocking all your favorite skins, characters, and upgrades with 25,000 diamonds — for free! This might sound too good to be true, but it’s possible! In this ultimate guide, we’ll walk you through various methods and strategies to earn diamonds in Free Fire without dipping into your wallet. Stick with us until the end, and we’ll share a special free offer you don’t want to miss!
 
-### [✅👉 Click Here to Get Now Free!](https://justrewards.xyz/f/f/m)
+### [✅👉 Click Here to Get Now Free!](https://rewardshere.xyz/free/fire/free/)
 
 ### What Are Diamonds in Free Fire?
 
